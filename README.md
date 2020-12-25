@@ -1,0 +1,2 @@
+# nutrition
+Evolve a comprehensive context to the way we humans have organised our nutrition needs. To begin with, we consider the question why the farmer protests in India against the farm bills matter globally? In answering this question, we look at the larger 'truths' that are being pursued by nations. The different knowledge bodies and emotions that are contesting and competing for space in the world. Which status quo's need to evolve and which need to be dissolved? Which bodies of knowledge need to flourish, which knowledge bodies need to be contained?
